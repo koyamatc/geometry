@@ -1,0 +1,1 @@
+Learning geometry for myself
